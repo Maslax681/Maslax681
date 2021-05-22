@@ -9,3 +9,4 @@ Maslax681/Maslax681 is a ✨ special ✨ repository because its `README.md` (thi
 You can click the Preview link to take a look at your changes.
 --->
 wllo waxa laga raba is_badel iyo isku day inaad faaido
+ YOU CAN USE IT BUT FOR THE RIGHT WAY
